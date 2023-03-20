@@ -1,0 +1,1 @@
+# Afghanstin-Khosti
